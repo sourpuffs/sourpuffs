@@ -1,5 +1,6 @@
 remaking the theme later!
-<img width="2048" height="1536" alt="Untitled37_20261017074321" src="https://github.com/user-attachments/assets/ddfd853d-20de-4156-9601-18a5c7c26da4" />
+<img width="2048" height="1536" alt="Untitled37_20261017074705" src="https://github.com/user-attachments/assets/ebfc70f8-1f3c-4d45-b25c-39cf7fe99482" />
+
 my github is never finished like this drawing I’m not even finished with….
 
 
